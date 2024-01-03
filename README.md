@@ -9,4 +9,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: sviha195@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I like playing Volleyball!
-
+- Check out my [Personal Website!](viha123.github.io)
